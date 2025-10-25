@@ -4,6 +4,7 @@
 > So we decided to buy the company ourselves.  
 
 ---
+<img width="1024" height="1024" alt="268B16E1-6ECB-4C7B-89E3-4078B8F9C13A" src="https://github.com/user-attachments/assets/9dab5d8f-0f8f-4916-9ed0-3dd6ed1d78aa" />
 
 ## ⚙️ Manifesto  
 
